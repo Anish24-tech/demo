@@ -9,3 +9,4 @@ y father works at LMW lakshmi machinary works at perinayakampalayam,
 My mother is a house wife.
 MY brother is working at CTS Cognizant Techinical Solution.(IT Employee)
 thats all about my family.
+My Role Model: I want to become like Virat kohli because he is the cricket king. like that way i want to become a Coding and It not like a king but to best at work and also as a leader.(simple). 
